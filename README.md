@@ -1,1 +1,0 @@
-# kn-yamazaki.github.io
